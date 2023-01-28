@@ -1,7 +1,0 @@
-echo "# herazu-osu-skins" >> README.md
-git init
-git add README.md
-git commit -m "first commit"
-git branch -M main
-git remote add origin git@github.com:h3razu/herazu-osu-skins.git
-git push -u origin main
