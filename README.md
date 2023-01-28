@@ -16,7 +16,7 @@
 ![screenshot264](https://user-images.githubusercontent.com/123813182/215268043-c1955307-7d4d-40e7-b330-76044dab520b.jpg)
 
 ## ** Herazu EZ Skin:**
-### [Download](https://www.mediafire.com/file/hdcu1559zl90jan/-_Herazu%2523.osk/filehttps://www.mediafire.com/file/t86bumoutgskvpf/-_Herazu_EZ_Skin.osk/file)
+### [Download](https://www.mediafire.com/file/t86bumoutgskvpf/-_Herazu_EZ_Skin.osk/file)
 ![screenshot268](https://user-images.githubusercontent.com/123813182/215268206-6e77f729-dc05-4a97-9aa5-a8182558314f.jpg)
 ![screenshot268](https://user-images.githubusercontent.com/123813182/215268208-50e1af38-991d-4420-b3c1-81934f03e36e.jpg)
 
