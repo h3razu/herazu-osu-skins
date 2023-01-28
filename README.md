@@ -13,7 +13,7 @@
 ![screenshot266](https://user-images.githubusercontent.com/123813182/215268076-67f3ebe6-2cda-4765-a00e-59ceb7dd3997.jpg)
 
 ## ** - Herazu#:**
-### [Download] (https://www.mediafire.com/file/hdcu1559zl90jan/-_Herazu%2523.osk/file)
+### [Download](https://www.mediafire.com/file/hdcu1559zl90jan/-_Herazu%2523.osk/file)
 ![screenshot260](https://user-images.githubusercontent.com/123813182/215268019-e8fa5c88-8cfd-4a7b-a6e7-4535b2207c5a.jpg)
 ![screenshot263](https://user-images.githubusercontent.com/123813182/215268042-2c87524f-e8a1-4bf8-9ffc-be054a7c1009.jpg)
 ![screenshot264](https://user-images.githubusercontent.com/123813182/215268043-c1955307-7d4d-40e7-b330-76044dab520b.jpg)
