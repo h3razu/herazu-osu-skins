@@ -21,11 +21,16 @@
 ![screenshot268](https://user-images.githubusercontent.com/123813182/215268208-50e1af38-991d-4420-b3c1-81934f03e36e.jpg)
 
 ## ** Arista Edit:**
-### [Download](https://www.mediafire.com/file/hdcu1559zl90jan/-_Herazu%2523.osk/file)
+### [Download](https://www.mediafire.com/file/eokp5bgq9dobpnf/Aristia_Aleph_Edit.osk/file)
 ![screenshot270](https://user-images.githubusercontent.com/123813182/215268282-416e47da-d105-428e-b342-0a8079b9d5d7.jpg)
 ![screenshot271](https://user-images.githubusercontent.com/123813182/215268284-690f6e7b-60cf-4544-a615-07e5a1dfa8e2.jpg)
 
 ## ** Arista Edit II:**
-### [Download](https://www.mediafire.com/file/hdcu1559zl90jan/-_Herazu%2523.osk/file)
+### [Download](https://www.mediafire.com/file/orm019i6yo2hf6q/Aristia%2528Edit%2529.osk/file)
 ![screenshot273](https://user-images.githubusercontent.com/123813182/215268327-893a1bb1-0d01-44f5-8f42-7a3658cc4dd3.jpg)
 ![screenshot274](https://user-images.githubusercontent.com/123813182/215268331-1da7cb14-d779-4726-b109-b1867a3fbcfb.jpg)
+
+## ** watr seoul v2:**
+### [Download](https://www.mediafire.com/file/moitt8omu7xb9pp/watr_2_seoul_v10.osk/file)
+![screenshot276](https://user-images.githubusercontent.com/123813182/215268492-b01c608a-24fa-44f2-93ff-e18ab7ab50ed.jpg)
+![screenshot275](https://user-images.githubusercontent.com/123813182/215268489-fead22ec-b791-49dc-993c-36bcaf0df755.jpg)
